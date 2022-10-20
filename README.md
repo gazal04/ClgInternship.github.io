@@ -1,1 +1,1 @@
-# ClgInternship.github.io
+# Internship Certificate
